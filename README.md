@@ -17,4 +17,10 @@ Facebook http://www.facebook.com/relicradiationmusic
 
 YouTube Musician/Podcaster - Streaming Guitar, Videogames, Original Music and more.
 
-https://www.youtube.com/channel/UCcGd0qxJIdrR1Se9kCkCmYQ
+YOUTUBE - https://www.youtube.com/@alvalankerofficial
+
+MERCH - https://alvalanker.com/merch
+
+LinkBio: linknbio.com/alvalanker
+
+https://kick.com/alvalanker
